@@ -1,0 +1,1 @@
+# strona-para-jacek
